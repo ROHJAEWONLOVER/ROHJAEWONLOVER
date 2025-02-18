@@ -1,16 +1,36 @@
-## Hi there 👋
+                                                    THANGYU AM I RIGHT CHAT.
 
-<!--
-**ROHJAEWONLOVER/ROHJAEWONLOVER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+          
+
+
+
+
+
+
+
+
+
+
+
+
+  ![0f9da43f804d5b425436eded147dcd89](https://github.com/user-attachments/assets/061d3ffc-37a8-441e-b9a3-0d5a34e10156)
+
+
+
+
+
+
+
+
+
+
+                                                check out my strawpage for more info
