@@ -1,5 +1,6 @@
                                                   halloooo i am miles
-                                                    -------------------
+                   ![cookie](https://github.com/user-attachments/assets/b64411ef-023a-4700-8d1c-0e47404b0877)
+                                 -------------------
                                                     i go by he/him
                                                     -------------------
                                                     i am trans,gay
@@ -14,12 +15,9 @@
 
 
 
+![cookie](https://github.com/user-attachments/assets/a2d59bd4-f532-4b05-96f6-51462061d7e2)
 
 
-
-
-
-[image](https://github.com/user-attachments/assets/e7cc32ea-a95a-4817-91a0-93641b08239c)
 
 
 
