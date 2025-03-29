@@ -1,4 +1,4 @@
-                                                    halloooo i am miles
+![image](https://github.com/user-attachments/assets/4be52fd3-e31f-41f3-9db8-1add1cc3ba9f)                                                    halloooo i am miles
                                                     -------------------
                                                     i go by he/him
                                                     -------------------
@@ -19,8 +19,8 @@
 
 
 
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fcookierunkingdom.fandom.com%2Fwiki%2FBurning_Spice_Cookie&psig=AOvVaw0nckpni4Ma877PfIYvdKBM&ust=1743340698336000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCKiYnaqwr4wDFQAAAAAdAAAAABAE![image](https://github.com/user-attachments/assets/690a7a83-75e3-4b5e-8e06-1f01ec6e5952)
 
-[image](https://github.com/user-attachments/assets/798262a7-6c6b-48ce-a0c3-f0147c7c4c65)
 
           
 
