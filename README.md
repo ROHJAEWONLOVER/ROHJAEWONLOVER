@@ -1,5 +1,5 @@
                                                   halloooo i am miles
-                   ![cookie](https://github.com/user-attachments/assets/b64411ef-023a-4700-8d1c-0e47404b0877)
+                   
                                  -------------------
                                                     i go by he/him
                                                     -------------------
@@ -14,7 +14,8 @@
                                         
 
 
-(https://github.com/user-attachments/assets/a2d59bd4-f532-4b05-96f6-51462061d7e2)
+![burning](https://github.com/user-attachments/assets/16ff3d20-8b46-48c5-94dc-4e261b1ed166)
+
 
 
 
